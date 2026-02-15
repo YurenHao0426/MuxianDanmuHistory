@@ -1,3 +1,3 @@
 # MuxianSexualRepressionHistory
 
-本人挚友muxian先生的炫压抑记录
+本人挚友muxian先生的b站弹幕记录
